@@ -51,3 +51,4 @@ This is a **satirical project** for historical and comedic purposes only. The ge
 
 The "Donkey Party" was a real, satirical political party in Iran founded in the 1940s. Its 'manifesto' was a humorous critique aimed at keeping politicians humble, reminding them not to become self-important.
 It playfully suggested that "donkeys" (representing hardworking, non-malicious beings) embodied a humility and honesty that politicians worldwide would do well to remember. This project is a lighthearted tribute to that historical satire.
+for more Info Please do See the Great Documentery done by "Deep Podcast" https://www.youtube.com/watch?v=krrfVZFofqc
